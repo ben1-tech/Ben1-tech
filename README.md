@@ -2,8 +2,6 @@
 👨‍💻 Computer Science Student | 🚀 Entrepreneur
 📊 Forex & Crypto | 🛡️ Cybersecurity Enthusiast
 ⚡ Founder @ Shmoneh 28 Capital
-
-🔥 Flashy vibe (personal brand/social-friendly):
 🚀 CEO in the making | 💻 Coding + 📊 Trading
 🛡️ Cybersecurity | 🤖 Bots | 💰 Financial Freedom
 ⚡ Code. Trade. Innovate. Build.
