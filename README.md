@@ -1,6 +1,12 @@
 # 💫 About Me:
-👨‍💻 Computer Science Student | 🚀 Entrepreneur<br>📊 Forex & Crypto | 💡 AI & Cloud Enthusiast<br>⚡ Founder @ Shmoneh 28 Capital<br>🚀 CEO in the making | 💻 Coding + 📊 Trading<br>🤖 AI Bots | ☁️ Cloud | 💰 Financial Freedom<br>⚡ Code. Trade. Innovate. Build.
+👨‍💻 Computer Science Student | 🚀 Entrepreneur
+📊 Forex & Crypto | 🛡️ Cybersecurity Enthusiast
+⚡ Founder @ Shmoneh 28 Capital
 
+🔥 Flashy vibe (personal brand/social-friendly):
+🚀 CEO in the making | 💻 Coding + 📊 Trading
+🛡️ Cybersecurity | 🤖 Bots | 💰 Financial Freedom
+⚡ Code. Trade. Innovate. Build.
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/_bc.e.zeddx) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/zeddx88) 
